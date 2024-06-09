@@ -27,7 +27,7 @@ trải nghiệm người dùng cuối, mỗi tội chưa đâu vào đâu cả
 
 Mình cũng thích vui đùa cùng ngôn ngữ:
 - Tiếng Anh tạm được (C1), cần trau dồi thêm
-- Đang học thêm tiếng Pháp, tiếng Trung (và tiếng Nhật), thích tiếng Pháp hơn nhưng cảm thấy cần tiếng Trung, Nhật hay Hàn hơn để đi làm á
+- Đang học thêm tiếng Pháp, tiếng Trung (và tiếng Nhật), thích tiếng Pháp hơn nhưng cảm thấy cần tiếng Trung, Nhật hay Hàn hơn để đi làm
 
 ## Điểm mạnh
 
