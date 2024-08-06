@@ -41,10 +41,6 @@ Mình khó tập trung, có quá nhiều ý tưởng cùng ập tới và cũng 
 
 Toán học không phải thứ có thể yêu thích tới mức học ngày học đêm, nhưng vẫn sẵn sàng bỏ thời gian ra đọc nếu phần đó thực sự cần thiết
 
-## Sexuality (?)
-
-Mình là pansexual nha 🩷💛💙. Miễn họ yêu mình, mình yêu họ, thế là được rồi.
-
 ## Lời kết
 
 Nếu đã đọc tới đây, cảm ơn mọi người lắm lắm vì đã tìm hiểu về mình
