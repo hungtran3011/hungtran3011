@@ -1,5 +1,8 @@
 # 💫About Me :
 Third year student, Computer Science major
+
+Eager full-stack developer
+
 Would love to get an internship
 
 ## 🌐Socials
